@@ -1,0 +1,1 @@
+logikal operatorlar ro'yhati 
